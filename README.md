@@ -1,1 +1,0 @@
-# Kamimura-Koga.github.io
